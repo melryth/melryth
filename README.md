@@ -1,4 +1,9 @@
-## Hi there 👋
+❀ <br><br>
+
+<img width="500" height="257" alt="image" src="https://github.com/user-attachments/assets/42e51bc9-a9e6-4843-84db-fb67702c5f3b" /> <br><br><br>
+𝘴𝘶𝘯𝘴𝘩𝘪𝘯𝘦𝘦𝘦 !! 𝘸𝘪𝘵𝘩 𝘭𝘰𝘷𝘦~
+
+
 
 <!--
 **melryth/melryth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
