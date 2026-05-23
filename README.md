@@ -1,6 +1,7 @@
 ❀ <br><br>
 
-<img width="500" height="257" alt="image" src="https://github.com/user-attachments/assets/42e51bc9-a9e6-4843-84db-fb67702c5f3b" /> <br><br><br>
+<img width="500" height="281" alt="image" src="https://github.com/user-attachments/assets/5b27c8c3-2887-4cfe-9f83-d7cb0011c64a" /> <br><br><br>
+
 𝘴𝘶𝘯𝘴𝘩𝘪𝘯𝘦𝘦𝘦 !! 𝘸𝘪𝘵𝘩 𝘭𝘰𝘷𝘦~
 
 
