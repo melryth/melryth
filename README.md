@@ -1,9 +1,9 @@
 ❀ <br><br>
 
-<img width="500" height="257" alt="image" src="https://github.com/user-attachments/assets/182809e9-cc5f-4b6e-b13b-68b20bf3c1f5" /> <br><br><br>
+<img width="500" height="282" alt="image" src="https://github.com/user-attachments/assets/5d7dbec0-ed48-486d-af50-20df81f450b3" /> <br><br><br>
  
 
-𝘴𝘶𝘯𝘴𝘩𝘪𝘯𝘦𝘦𝘦 !! 𝘸𝘪𝘵𝘩 𝘭𝘰𝘷𝘦~
+
 
 
 
